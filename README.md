@@ -48,9 +48,15 @@ Qualifications:
 If you are a highly organized, discreet, and proactive professional with a genuine interest in the future of finance and technology, we encourage you to apply. Join us at Bitcoin Research & Ventures Company and contribute to the cutting edge of blockchain innovation.
 
 Salary: $175,000 - $200,000 (depending on qualifications)
+
 Medical
+
 Dental
+
+Vision
+
 Paid time off
+
 Competitive pay package
 
 Reply with resume to satoshillc.u@ud.me
