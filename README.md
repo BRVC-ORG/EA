@@ -1,4 +1,4 @@
-# Executive Assistant to the CEO
+# Executive Assistant to the CEO (On-site, Remote)
 
 Bitcoin Research & Ventures Company is a startup at the forefront of cryptocurrency and blockchain research and development, and a prominent venture capital investor in the space. We are seeking a highly skilled and discreet Executive Assistant to the CEO to provide comprehensive administrative and organizational support.
 
@@ -47,7 +47,12 @@ Qualifications:
 
 If you are a highly organized, discreet, and proactive professional with a genuine interest in the future of finance and technology, we encourage you to apply. Join us at Bitcoin Research & Ventures Company and contribute to the cutting edge of blockchain innovation.
 
+Salary: $175,000 - $200,000 (depending on qualifications)
+Medical
+Dental
+Paid time off
+Competitive pay package
 
-Reply with resume in PDF format to satoshillc.u@ud.me
+Reply with resume to satoshillc.u@ud.me
 
 
