@@ -31,17 +31,17 @@ Qualifications:
 
 - Strong understanding of and passion for cryptocurrency, blockchain technology, and the venture capital landscape is essential.
 
--Exceptional organizational and time management skills, with the ability to prioritize effectively in a fast-paced environment.
+- Exceptional organizational and time management skills, with the ability to prioritize effectively in a fast-paced environment.
 
--Excellent written and verbal communication skills with impeccable attention to detail.
+- Excellent written and verbal communication skills with impeccable attention to detail.
 
--Demonstrated ability to handle confidential information with discretion and integrity.
+- Demonstrated ability to handle confidential information with discretion and integrity.
 
 - Proficiency in Microsoft Office Suite (Outlook, Word, Excel, PowerPoint) and experience with project management tools.
 
 - Proactive, resourceful, and able to work independently with minimal supervision.
 
--Strong interpersonal skills and a professional demeanor.
+- Strong interpersonal skills and a professional demeanor.
 
 - Bachelor's degree preferred.
 
