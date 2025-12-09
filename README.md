@@ -59,6 +59,6 @@ Paid time off
 
 Competitive pay package
 
-Reply with resume to satoshillc.u@ud.me
+Reply with resume to brvc.llc@gmail.com
 
 
