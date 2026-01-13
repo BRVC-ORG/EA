@@ -59,6 +59,6 @@ Paid time off
 
 Competitive pay package
 
-Reply with resume to brvc.llc@gmail.com
+Reply with resume to info@brvc-org.com
 
 
